@@ -7,31 +7,31 @@
 			<td><strong>Промокоды</strong></td>
 		</tr>
 		<tr>
-			<td><strong>🎮<a href="https://levelx.top/t59017025">Get x</a></strong></td>
+			<td><strong>🎮<a href="https://lvlx.pw/t59017025">Get x</a></strong></td>
 			<td>get777x</td>
 		</tr>
 		<tr>
-			<td><strong>🌐<a href="https://levelx.top/t59017025">Покер дом</a></strong></td>
+			<td><strong>🌐<a href="https://lvlx.pw/t59017025">Покер дом</a></strong></td>
 			<td>get777x</td>
 		</tr>
 		<tr>
-			<td><strong>🎮<a href="https://levelx.top/t59017025">Комета</a></strong></td>
+			<td><strong>🎮<a href="https://lvlx.pw/t59017025">Комета</a></strong></td>
 			<td>get777x</td>
 		</tr>
 		<tr>
-			<td><strong>🌐<a href="https://levelx.top/t59017025">R7</a></strong></td>
+			<td><strong>🌐<a href="https://lvlx.pw/t59017025">R7</a></strong></td>
 			<td>get777x</td>
 		</tr>
 		<tr>
-			<td><strong>🎮<a href="https://levelx.top/t59017025">Starda</a></strong></td>
+			<td><strong>🎮<a href="https://lvlx.pw/t59017025">Starda</a></strong></td>
 			<td>get777x</td>
 		</tr>
 		<tr>
-			<td><strong>🌐<a href="https://levelx.top/t59017025">Gamma</a></strong></td>
+			<td><strong>🌐<a href="https://lvlx.pw/t59017025">Gamma</a></strong></td>
 			<td>get777x</td>
 		</tr>
 		<tr>
-			<td><strong>🎮<a href="https://levelx.top/t59017025">Plinko</a></strong></td>
+			<td><strong>🎮<a href="https://lvlx.pw/t59017025">Plinko</a></strong></td>
 			<td>get777x</td>
 		</tr>
 	</tbody>
